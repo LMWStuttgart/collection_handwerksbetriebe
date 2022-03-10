@@ -10,8 +10,6 @@ The display boards from the album series "30 Workshops of Craftsmen along with t
 
 The 28 picture sheets are part of the collection of the Belegarchiv of the J.F. Schreiber Verlag Esslingen and are made available as scans with enriched metadata for Coding da Vinci. They are part of the collection of the Department of Popular and Everyday Culture of the Württemberg State Museum, which is structured according to lifeworld themes. This makes it possible to document and present the actual use of the objects as well as the life stories and production histories associated with them.
 
-Translated with www.DeepL.com/Translator (free version)
-
 
 Inhalt/Content:
 
